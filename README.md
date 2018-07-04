@@ -6,7 +6,7 @@ In this half-day workshop students will use their online personas to create art 
 ## Overview
 
 #### Homework
-Please watch the [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) on the controversy surrounding Dana Schutz's Open Casket. Then read the follow-up [article](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) about Parker Bright who protested Dana's painting at the Whitney Museum of American Art and ended up being the object of Neïl Beloufa's The enemy of my enemy at the Palais de Tokyo in Paris.
+Please [watch](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) the video on the controversy surrounding Dana Schutz's Open Casket. Then [read](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) the follow-up article about Parker Bright who protested Dana's painting at the Whitney Museum of American Art and ended up being the object of Neïl Beloufa's The enemy of my enemy at the Palais de Tokyo in Paris.
 
 #### Terms
 Appropriation
