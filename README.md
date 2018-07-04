@@ -4,10 +4,10 @@ In this half-day workshop students will use their online personas to create art 
 
 ## Homework 
 Please watch this [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) about the controversy surrounding Dana Schutz's painting from the 2017 Whitney Biennial. Then read this [article](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) about Parker Bright who protested Dana's painting and was the subject of a Neïl Beloufa work at the Palais de Tokyo museum in Paris.
-
+<br>
 ## Overview (15 minutes)
 
-<b>Concepts</b> <br>
+### Concepts <br>
 Appropriation <br>
 Identity <br>
 Form
@@ -15,7 +15,7 @@ Form
 ### Questions <br>
 We will discuss your thoughts about the painting in relation to who is speaking for whom and how. <b>Who</b> — from what position was Dana creating? <b>Whom</b> — Parker or Neïl? What positions are fixed, where is identity fluid, and would there have been another way for Dana to appropriate the Emmett Til photograph? <b>How</b> — what technologies were used here in the making and distributing of the artwork? Did the tech change things?  
 
-
+<br>
 ## Examples (10 minutes)
 Zines
 
@@ -23,7 +23,7 @@ Sorry to dump on you like this.zip by Christopher Clary <br>
 For Everard by Anthony Malone <br>
 [NOPE 45] by Sebastian Hutchinson
 
-
+<br>
 ## Work (75 minutes)
 
 ### Warm-up<br>
@@ -37,10 +37,10 @@ Review all the pages in your broswer history. This is the material you will use 
 
 Print your feeds to the Eyebeam black and white laser printer. Use sissors and glue to arrange your material onto three letter size sheets. When finished, copy them on the black and white printer. Fold them in half. Collate them. Bind them with the stapler.
 
-
+<br>
 ## Share and reflection (15 minutes)
 
-
+<br>
 ## Takeaway (5 minutes)
 Wasting Time on the Internet by Kenneth Goldsmith <br>
 Comparison: There's a New Movement in American Poetry and It's Not Kenneth Goldsmith by Cath Park Hong
