@@ -17,6 +17,8 @@ We will discuss your thoughts about the painting in relation to who is speaking 
 
 
 ## Examples (10 minutes)
+Zines
+
 Sorry to dump on you like this.zip by Christopher Clary <br>
 For Everard by Anthony Malone <br>
 [NOPE 45] by Sebastian Hutchinson
