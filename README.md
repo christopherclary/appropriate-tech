@@ -5,18 +5,15 @@ In this half-day workshop students will use their online personas to create art 
 
 ## Overview
 
-<b>Homework</b>
-
+<b>Homework</b> <br>
 Please watch this [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) about the controversy surrounding Dana Schutz's painting from the 2017 Whitney Biennial. Then read this [article](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) about Parker Bright who protested Dana's painting and was the subject of a Neïl Beloufa work at the Palais de Tokyo in Paris.
 
 
-<b>Questions</b>
-
+<b>Questions</b> <br>
 We will discuss your thoughts about the painting in relation to who is speaking for whom and how. From what position was Dana creating? And Parker? Or Neïl? What positions are fixed and where is identity fluid? What technologies were used here? How did the tech influence things?  
 
 
-<b>Concepts</b>
-
+<b>Concepts</b> <br>
 Appropriation vs privacy <br>
 Artistic freedom vs social justice  <br>
 Programmer vs user
@@ -31,13 +28,11 @@ For Everard by Anthony Malone <br>
 
 ## Work
 
-<b>Warm-up</b>
-
+<b>Warm-up</b> <br>
 In a group, have one person choose two behavior rules. Distribute one rule to all but one of the other members of the group, and the other to only one. Make it discreet so you do not know who got the majority rule and who got the minority. In a chat room, have everyone type and act according to the rule they were given. See if the majority can identify the minority and vice versa, and if they can determine each other's rules.
 
 
-<b>Zines</b>
-
+<b>Zines</b> <br>
 Clear your browser history. Open a web browser. Navigate to a web page that represents you. Everyone rotate one seat. You have one minute to review the web page. Click on one thing. Rotate seats again, review the page, and click on one thing. Repeat until you're back to your computer.
 
 Review all the pages in your broswer history. This is the material you will use to create a self-portrait zine. Collect text, images, whatever you want to use for your zine. Post these assets to a feed (Facebook, Snapchat, Tumblr, etc.). 
