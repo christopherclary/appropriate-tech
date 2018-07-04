@@ -5,17 +5,18 @@ In this half-day workshop students will use their online personas to create art 
 
 ## Overview
 
-### Background
+#### Homework
+Please watch the video and read the follow-up article before class. This will help frame our discussion and zine making.  <br> 
 [Open Casket](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) by Dana Schutz <br>
-Comparison: [The enemy of my enemy](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) by Neïl Beloufa
+[The enemy of my enemy](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) by Neïl Beloufa
 
-### Terms
-Appropriation <br>
+#### Terms
+Appropriation
 Privacy <br>
 Artistic freedom <br>
 Social justice  <br>
 
-### Strategy
+#### Strategy
 Postion <br>
 Material <br>
 Transformation <br>
