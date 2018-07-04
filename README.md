@@ -10,7 +10,7 @@ Please watch this [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148
 
 
 <b>Questions</b> <br>
-We will discuss your thoughts about the painting in relation to who is speaking for whom and how. From what position was Dana creating? And Parker? Or Neïl? What positions are fixed and where is identity fluid? What technologies were used here? How did the tech influence things?  
+We will discuss your thoughts about the painting in relation to who is speaking for whom and how. From what position was Dana creating? Or Parker? Or Neïl? What positions are fixed, where is identity fluid, and would there have been another way for Dana to appropriate the Emmett Til photograph? What technologies were used here? How was the tech influencial?  
 
 
 <b>Concepts</b> <br>
