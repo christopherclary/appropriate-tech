@@ -2,6 +2,7 @@
 
 In this half-day workshop students will use their online personas to create art about themselves and their classmates. First we'll discuss appropriation versus privacy and artistic freedom versus social justice — looking at a few key artists and authors who use the Internet as raw material. Students will then create a self-portrait using content from their emails, texts, apps, and feeds. Finally, students will share content from their archive for the class to create group portraits. This last gesture asks students to not only entrust one another with their content but trust individual voices can speak for others and the group. 
 
+
 ## Overview
 
 ### Background
@@ -12,14 +13,18 @@ Comparison: [The enemy of my enemy](https://news.artnet.com/art-world/parker-bri
 Appropriation <br>
 Privacy <br>
 Artistic freedom <br>
-Social justice
+Social justice  <br>
+
+### Strategy
+Postion <br>
+Material <br>
+Transformation <br>
+
 
 ## Examples
-Sorry to dump on you like this.zip by Christpher Clary <br>
-Comparison: Dark Room by Paul Mpagi Sepuya
-
+For Everard by Anthony Malone <br>
 [NOPE 45] by Sebastian Hutchinson <br>
-Comparison: Steve, Harvey and Matt, by Paul Soulellis
+
 
 ## Work
 
@@ -33,12 +38,17 @@ Review all the pages in your broswer history. This is the material you will use 
 
 Print your feeds to the Eyebeam black and white laser printer. Use sissors and glue to arrange your material onto three letter size sheets. When finished, copy them on the black and white printer. Fold them in half. Collate them. Bind them with the stapler.
 
-## Share, reflection, homework
+
+## Share, reflection, takeaway
 
 ### Textbook
 Wasting Time on the Internet by Kenneth Goldsmith <br>
 Comparison: There's a New Movement in American Poetry and It's Not Kenneth Goldsmith by Cath Park Hong
 
+Sorry to dump on you like this.zip by Christpher Clary <br>
+Comparison: Dark Room by Paul Mpagi Sepuya
 
+Our Arrival by Allison Parrish
+Comparison: 
 
 
