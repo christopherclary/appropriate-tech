@@ -9,8 +9,8 @@ Artistic freedom <br>
 Social justice
 
 ## Examples
-[Open Casket] (https://news.vice.com/en_us/article/mb9dk4/a-white-womans-painting-of-emmett-tills-mangled-body-has-become-the-center-of-a-heated-debate) by Dana Schutz <br>
-Comparison: [The enemy of my enemy] (https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) by Neïl Beloufa 
+[Open Casket](https://news.vice.com/en_us/article/mb9dk4/a-white-womans-painting-of-emmett-tills-mangled-body-has-become-the-center-of-a-heated-debate) by Dana Schutz <br>
+Comparison: [The enemy of my enemy](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) by Neïl Beloufa 
 
 Wasting Time on the Internet by Kenneth Goldsmith <br>
 Comparison: There's a New Movement in American Poetry and It's Not Kenneth Goldsmith by Cath Park Hong
