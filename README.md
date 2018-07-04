@@ -12,8 +12,8 @@ Appropriation <br>
 Identity <br>
 Form
 
-<b>Questions</b> <br>
-We will discuss your thoughts about the painting in relation to who is speaking for whom and how. Who — from what position was Dana creating? Whom — Parker or Neïl? What positions are fixed, where is identity fluid, and would there have been another way for Dana to appropriate the Emmett Til photograph? How — what technologies were used here in the making and distributing of the artwork? Did the tech change things?  
+### Questions <br>
+We will discuss your thoughts about the painting in relation to who is speaking for whom and how. <b>Who</b> — from what position was Dana creating? <b>Whom</b> — Parker or Neïl? What positions are fixed, where is identity fluid, and would there have been another way for Dana to appropriate the Emmett Til photograph? <b>How</b> — what technologies were used here in the making and distributing of the artwork? Did the tech change things?  
 
 
 ## Examples (10 minutes)
@@ -24,11 +24,11 @@ For Everard by Anthony Malone <br>
 
 ## Work (75 minutes)
 
-<b>Warm-up</b> <br>
+### Warm-up<br>
 In a group, have one person choose two behavior rules. Distribute one rule to all but one of the other members of the group, and the other to only one. Make it discreet so you do not know who got the majority rule and who got the minority. In a chat room, have everyone type and act according to the rule they were given. See if the majority can identify the minority and vice versa, and if they can determine each other's rules.
 
 
-<b>Zines</b> <br>
+### Zines<br>
 Clear your browser history. Open a web browser. Navigate to a web page that represents you. Everyone rotate one seat. You have one minute to review the web page. Click on one thing. Rotate seats again, review the page, and click on one thing. Repeat until you're back to your computer.
 
 Review all the pages in your broswer history. This is the material you will use to create a self-portrait zine. Collect text, images, whatever you want to use for your zine. Post these assets to a feed (Facebook, Snapchat, Tumblr, etc.). 
