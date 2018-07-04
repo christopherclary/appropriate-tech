@@ -9,13 +9,13 @@ Artistic freedom <br>
 Social justice
 
 ## Examples
-Wasting Time on the Internet by Kenneth Goldsmith <wbr>
+Wasting Time on the Internet by Kenneth Goldsmith <br>
 Comparison: There's a New Movement in American Poetry and It's Not Kenneth Goldsmith by Cath Park Hong
 
-Sorry to dump on you like this.zip by Christpher Clary <wbr>
+Sorry to dump on you like this.zip by Christpher Clary <br>
 Comparison: Dark Room by Paul Mpagi Sepuya
 
-[NOPE 45] by Sebastian Hutchinson <wbr>
+[NOPE 45] by Sebastian Hutchinson <br>
 Comparison: Steve, Harvey and Matt, by Paul Soulellis
 
 ## Warm-up Exercises
