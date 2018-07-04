@@ -5,7 +5,7 @@ In this half-day workshop students will use their online personas to create art 
 ## Homework 
 Please watch this [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) about the controversy surrounding Dana Schutz's painting from the 2017 Whitney Biennial. Then read this [article](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) about Parker Bright who protested Dana's painting and was the subject of a Neïl Beloufa work at the Palais de Tokyo museum in Paris.
 
-## Overview (10 minutes)
+## Overview (15 minutes)
 
 <b>Concepts</b> <br>
 Appropriation vs privacy <br>
@@ -13,16 +13,16 @@ Artistic freedom vs social justice  <br>
 Programmer vs user
 
 <b>Questions</b> <br>
-We will discuss your thoughts about the painting in relation to who is speaking for whom and how. From what position was Dana creating? Or Parker? Or Neïl? What positions are fixed, where is identity fluid, and would there have been another way for Dana to appropriate the Emmett Til photograph? What technologies were used here? How was the tech influencial?  
+We will discuss your thoughts about the painting in relation to who is speaking for whom and how. Whom — from what position was Dana creating? Or Parker? Or Neïl? What positions are fixed, where is identity fluid, and would there have been another way for Dana to appropriate the Emmett Til photograph? How — what technologies were used here? How was the tech influencial?  
 
 
-## Examples (5 minutes)
+## Examples (10 minutes)
 
 For Everard by Anthony Malone (5 minutes) <br>
 [NOPE 45] by Sebastian Hutchinson (5 minutes) <br>
 
 
-## Work (60 minutes)
+## Work (75 minutes)
 
 <b>Warm-up</b> <br>
 In a group, have one person choose two behavior rules. Distribute one rule to all but one of the other members of the group, and the other to only one. Make it discreet so you do not know who got the majority rule and who got the minority. In a chat room, have everyone type and act according to the rule they were given. See if the majority can identify the minority and vice versa, and if they can determine each other's rules.
@@ -36,7 +36,7 @@ Review all the pages in your broswer history. This is the material you will use 
 Print your feeds to the Eyebeam black and white laser printer. Use sissors and glue to arrange your material onto three letter size sheets. When finished, copy them on the black and white printer. Fold them in half. Collate them. Bind them with the stapler.
 
 
-## Share and reflection (10 minutes)
+## Share and reflection (15 minutes)
 
 
 ## Takeaways (5 minutes)
