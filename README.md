@@ -8,9 +8,9 @@ Please watch this [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148
 ## Overview (15 minutes)
 
 <b>Concepts</b> <br>
-Appropriation vs privacy <br>
-Artistic freedom vs social justice  <br>
-Programmer vs user
+Appropriation <br>
+Identity <br>
+Form
 
 <b>Questions</b> <br>
 We will discuss your thoughts about the painting in relation to who is speaking for whom and how. Whom — from what position was Dana creating? Or Parker? Or Neïl? What positions are fixed, where is identity fluid, and would there have been another way for Dana to appropriate the Emmett Til photograph? How — what technologies were used here? How was the tech influencial?  
