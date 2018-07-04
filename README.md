@@ -6,21 +6,20 @@ In this half-day workshop students will use their online personas to create art 
 ## Overview
 
 #### Homework
-Please watch this [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) about the controversy surrounding Dana Schutz's painting from the 2017 Whitney Biennial. Then read this [article](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947)about Parker Bright who protested Dana's painting and was the subject of a Neïl Beloufa work at the Palais de Tokyo in Paris.
+Please watch this [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) about the controversy surrounding Dana Schutz's painting from the 2017 Whitney Biennial. Then read this [article](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) about Parker Bright who protested Dana's painting and was the subject of a Neïl Beloufa work at the Palais de Tokyo in Paris.
 
-#### Terms
-Appropriation
-Privacy <br>
-Artistic freedom <br>
-Social justice  <br>
+#### Question
+We will discuss your thoughts about the painting in relation to who is speaking for whom and how. From what position was Dana creating? And Parker? Is it possible to have created from a diferent position? What technologies were used here? How did the tech change things?  
 
-#### Strategy
-Postion <br>
-Material <br>
-Transformation <br>
+#### Concepts
+Appropriation vs privacy <br>
+Artistic freedom vs social justice  <br>
+Programmer vs user
 
 
 ## Examples
+
+
 For Everard by Anthony Malone <br>
 [NOPE 45] by Sebastian Hutchinson <br>
 
@@ -38,9 +37,10 @@ Review all the pages in your broswer history. This is the material you will use 
 Print your feeds to the Eyebeam black and white laser printer. Use sissors and glue to arrange your material onto three letter size sheets. When finished, copy them on the black and white printer. Fold them in half. Collate them. Bind them with the stapler.
 
 
-## Share, reflection, takeaway
+## Share and reflection
 
-### Textbook
+
+## Takeaways
 Wasting Time on the Internet by Kenneth Goldsmith <br>
 Comparison: There's a New Movement in American Poetry and It's Not Kenneth Goldsmith by Cath Park Hong
 
