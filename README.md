@@ -2,11 +2,10 @@
 
 In this half-day workshop students will use their online personas to create art about themselves and their classmates. First we'll discuss appropriation versus privacy and artistic freedom versus social justice — looking at a few key artists and authors who use the Internet as raw material. Students will then create a self-portrait using content from their emails, texts, apps, and feeds. Finally, students will share content from their archive for the class to create group portraits. This last gesture asks students to not only entrust one another with their content but trust individual voices can speak for others and the group. 
 
-
-## Overview (15 minutes)
-
-<b>Homework</b> <br>
+## Homework 
 Please watch this [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) about the controversy surrounding Dana Schutz's painting from the 2017 Whitney Biennial. Then read this [article](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) about Parker Bright who protested Dana's painting and was the subject of a Neïl Beloufa work at the Palais de Tokyo museum in Paris.
+
+## Overview (10 minutes)
 
 <b>Concepts</b> <br>
 Appropriation vs privacy <br>
@@ -17,7 +16,7 @@ Programmer vs user
 We will discuss your thoughts about the painting in relation to who is speaking for whom and how. From what position was Dana creating? Or Parker? Or Neïl? What positions are fixed, where is identity fluid, and would there have been another way for Dana to appropriate the Emmett Til photograph? What technologies were used here? How was the tech influencial?  
 
 
-## Examples (10 minutes)
+## Examples (5 minutes)
 
 For Everard by Anthony Malone (5 minutes) <br>
 [NOPE 45] by Sebastian Hutchinson (5 minutes) <br>
@@ -37,7 +36,7 @@ Review all the pages in your broswer history. This is the material you will use 
 Print your feeds to the Eyebeam black and white laser printer. Use sissors and glue to arrange your material onto three letter size sheets. When finished, copy them on the black and white printer. Fold them in half. Collate them. Bind them with the stapler.
 
 
-## Share and reflection (15 minutes)
+## Share and reflection (10 minutes)
 
 
 ## Takeaways (5 minutes)
