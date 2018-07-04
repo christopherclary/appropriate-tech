@@ -18,10 +18,17 @@ Comparison: Dark Room by Paul Mpagi Sepuya
 [NOPE 45] by Sebastian Hutchinson <br>
 Comparison: Steve, Harvey and Matt, by Paul Soulellis
 
-## Warm-up Exercises
-
+## Warm-up Exercise
+In a group, have one person choose two behavior rules. Distribute one rule to all but one of the other members of the group, and the other to only one. Make it discreet so you do not know who got the majority rule and who got the minority. In a chat room, have everyone type and act according to the rule they were given. See if the majority can identify the minority and vice versa, and if they can determine each other's rules.
 
 ## Zine Making
+Clear your browser history. Open a web browser. Navigate to a web page that represents you. Everyone rotate one seat. You have one minute to review the web page. Click on one thing. Again rotate. Review. And click on one thing. Repeat until you get back to your computer.
+
+
+rotate, you have 1 minute to review the window and click on one thing.
+rotate, you have 1 minute to review the window and click on one thing.
+create a zine using anything from your browser history
+
 
 
 ## Reflection
