@@ -9,15 +9,14 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 
 ## Overview (15 minutes)
 
-### Appropriation <br>
+### Sppropriation <br>
 History -- Marcel Duchamp's readymades <br>
 In the digital age -- Pig-pen from Peanuts <br>
 
-## Examples (10 minutes)
-
-The Official Cockettes Paper Doll Book by Clay Geerdes <br>
-For Everard by Anthony Malone <br>
-[NOPE 45] by Sebastian Hutchinson
+## Zines (10 minutes)
+History -- The Official Cockettes Paper Doll Book by Clay Geerdes <br>
+In the digital age -- For Everard by Anthony Malone <br>
+Social justice -- [NOPE 45] by Sebastian Hutchinson
 
 ## Work (75 minutes)
 
@@ -25,12 +24,20 @@ For Everard by Anthony Malone <br>
 In a group, have one person choose two behavior rules. Distribute one rule to all but one of the other members of the group, and the other to only one. Make it discreet so you do not know who got the majority rule and who got the minority. In a chat room, have everyone type and act according to the rule they were given. See if the majority can identify the minority and vice versa, and if they can determine each other's rules.
 
 
-### Zines<br>
-Clear your browser history. Open a web browser. Navigate to a web page that represents you. Everyone rotate one seat. You have one minute to review the web page. Click on one thing. Rotate seats again, review the page, and click on one thing. Repeat until you're back to your computer.
+### Self-portraits<br>
+Open a web browser. Clear your browser history. Think of a website, page, or post that you like. That represents who you are. Navigate to it. Stop. Everyone rotate one seat. You have one minute to review what's on the browser and click on one thing. Stop. Rotate sears again. One minute to review and click one thing. Stop. Repeat above until you're back at your computer.
 
-Review all the pages in your broswer history. This is the material you will use to create a self-portrait zine. Collect text, images, whatever you want to use for your zine. Post these assets to a feed (Facebook, Snapchat, Tumblr, etc.). 
+Your browser history and anything on each of these pages is now raw material for your zine. Review it, collect text, images, video, whatever you want to use for your zine. Post these assests to a feed (Facebook, Snapchat, Tumblr, etc.). 
 
-Print your feeds to the Eyebeam black and white laser printer. Use sissors and glue to arrange your material onto three letter size sheets. When finished, copy them on the black and white printer. Fold them in half. Collate them. Bind them with the stapler.
+Print your feeds using Eyebeam's black and white laser printer. Use sissors and glue to arrange your material onto three letter size sheets. When finished, copy them on the black and white printer. Fold them in half. Collate them. Bind them with the stapler.
+
+### Group-portraits<br>
+Open a web browser. Clear your browser history. Think of a website, page, or post that you like. That represents who you are. Navigate to it. Stop. Everyone rotate one seat. You have one minute to review what's on the browser and click on one thing. Stop. Rotate sears again. One minute to review and click one thing. Stop. Repeat above until you're back at your computer.
+
+Your browser history and anything on each of these pages is now raw material for your zine. Review it, collect text, images, video, whatever you want to use for your zine. Post these assests to a feed (Facebook, Snapchat, Tumblr, etc.). 
+
+Print your feeds using Eyebeam's black and white laser printer. Use sissors and glue to arrange your material onto three letter size sheets. When finished, copy them on the black and white printer. Fold them in half. Collate them. Bind them with the stapler.
+
 
 
 ## Share and reflection (15 minutes)
