@@ -9,29 +9,29 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 
 ## Overview (15 minutes)
 
-### Sppropriation <br>
+<b>Appropriation</b> <br>
 History -- Marcel Duchamp's readymades <br>
 In the digital age -- Pig-pen from Peanuts <br>
 
-## Zines (10 minutes)
+<b>Zines</b><br>
 History -- The Official Cockettes Paper Doll Book by Clay Geerdes <br>
 In the digital age -- For Everard by Anthony Malone <br>
 Social justice -- [NOPE 45] by Sebastian Hutchinson
 
 ## Work (75 minutes)
 
-### Warm-up<br>
+<b>Warm-up</b><br>
 In a group, have one person choose two behavior rules. Distribute one rule to all but one of the other members of the group, and the other to only one. Make it discreet so you do not know who got the majority rule and who got the minority. In a chat room, have everyone type and act according to the rule they were given. See if the majority can identify the minority and vice versa, and if they can determine each other's rules.
 
 
-### Self-portraits<br>
+<b>Self-portraits</b><br>
 Open a web browser. Clear your browser history. Think of a website, page, or post that you like. That represents who you are. Navigate to it. Stop. Everyone rotate one seat. You have one minute to review what's on the browser and click on one thing. Stop. Rotate sears again. One minute to review and click one thing. Stop. Repeat above until you're back at your computer.
 
 Your browser history and anything on each of these pages is now raw material for your zine. Review it, collect text, images, video, whatever you want to use for your zine. Post these assests to a feed (Facebook, Snapchat, Tumblr, etc.). 
 
 Print your feeds using Eyebeam's black and white laser printer. Use sissors and glue to arrange your material onto three letter size sheets. When finished, copy them on the black and white printer. Fold them in half. Collate them. Bind them with the stapler.
 
-### Group-portraits<br>
+<b>Group-portraits</b><br>
 Open a web browser. Clear your browser history. Think of a website, page, or post that you like. That represents who you are. Navigate to it. Stop. Everyone rotate one seat. You have one minute to review what's on the browser and click on one thing. Stop. Rotate sears again. One minute to review and click one thing. Stop. Repeat above until you're back at your computer.
 
 Your browser history and anything on each of these pages is now raw material for your zine. Review it, collect text, images, video, whatever you want to use for your zine. Post these assests to a feed (Facebook, Snapchat, Tumblr, etc.). 
