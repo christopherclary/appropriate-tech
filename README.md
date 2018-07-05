@@ -21,7 +21,9 @@ Social justice -- [NOPE 45] by Sebastian Hutchinson
 ## Work
 
 <b>Warm-up</b><br>
-In a group, have one person choose two behavior rules. Distribute one rule to all but one of the other members of the group, and the other to only one. Make it discreet so you do not know who got the majority rule and who got the minority. In a chat room, have everyone type and act according to the rule they were given. See if the majority can identify the minority and vice versa, and if they can determine each other's rules.
+Individual ... everyone cue up a favorite song on your desktop. It can be a video or just audio. On the count of 3 press play. Write down as many song that you recognize.<br>
+
+Group ... now everyone cue up the song that was most recognized. On the count of 3 press play.
 
 
 <b>Self-portraits</b><br>
