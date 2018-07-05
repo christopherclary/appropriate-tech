@@ -2,12 +2,12 @@
 
 In this half-day workshop students will use their online personas to create art about themselves and their classmates. First we'll discuss appropriation versus privacy and artistic freedom versus social justice — looking at a few key artists and authors who use the Internet as raw material. Students will then create a self-portrait using content from their emails, texts, apps, and feeds. Finally, students will share content from their archive for the class to create group portraits. This last gesture asks students to not only entrust one another with their content but trust individual voices can speak for others and the group.  
 
-## Homework (15 minutes)
-Please watch this [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) about the controversy surrounding Dana Schutz's painting from the 2017 Whitney Biennial. Then read this [article](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) about Parker Bright who protested Dana's painting and was the subject of a Neïl Beloufa work at the Palais de Tokyo museum in Paris.<br>
+## Homework
+Take 15 minutes to watch this [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) about the controversy surrounding Dana Schutz's painting from the 2017 Whitney Biennial. Then read this [article](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) about Parker Bright who protested Dana's painting and was the subject of a Neïl Beloufa work at the Palais de Tokyo museum in Paris.<br>
 
 Think about who. From what position was Dana creating? Then whom. How did this effect Parker and Neïl and then Parker again? How did technology play a part? Not just in the distribution but the making of art.
 
-## Overview (30 minutes)
+## Overview
 
 <b>Appropriation</b> <br>
 History -- Marcel Duchamp's readymades <br>
@@ -18,7 +18,7 @@ History -- The Official Cockettes Paper Doll Book by Clay Geerdes <br>
 In the digital age -- For Everard by Anthony Malone <br>
 Social justice -- [NOPE 45] by Sebastian Hutchinson
 
-## Work (70 minutes)
+## Work
 
 <b>Warm-up</b><br>
 In a group, have one person choose two behavior rules. Distribute one rule to all but one of the other members of the group, and the other to only one. Make it discreet so you do not know who got the majority rule and who got the minority. In a chat room, have everyone type and act according to the rule they were given. See if the majority can identify the minority and vice versa, and if they can determine each other's rules.
@@ -40,10 +40,10 @@ Print your feeds using Eyebeam's black and white laser printer. Use sissors and 
 
 
 
-## Share and reflection (15 minutes)
+## Share and reflection
 
 
-## Takeaway (5 minutes)
+## Takeaway
 Wasting Time on the Internet by Kenneth Goldsmith <br>
 Comparison: There's a New Movement in American Poetry and It's Not Kenneth Goldsmith by Cath Park Hong
 
