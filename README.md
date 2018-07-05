@@ -21,7 +21,7 @@ Social justice -- [NOPE 45] by Sebastian Hutchinson
 ## Work
 
 <b>Warm-up</b><br>
-Individual ... everyone cue up a favorite song on your desktop. It can be a video or just audio. On the count of 3 press play. Write down as many song that you recognize.<br>
+Individual ... everyone cue up a favorite song on your desktop. It can be a video or just audio. On the count of 3 press play. Write down as many songs that you recognize.<br>
 
 Group ... now everyone cue up the song that was most recognized. On the count of 3 press play.
 
