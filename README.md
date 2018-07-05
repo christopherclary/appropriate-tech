@@ -32,10 +32,10 @@ Review all the pages in your broswer history. This is the material you will use 
 
 Print your feeds to the Eyebeam black and white laser printer. Use sissors and glue to arrange your material onto three letter size sheets. When finished, copy them on the black and white printer. Fold them in half. Collate them. Bind them with the stapler.
 
-<br>
+
 ## Share and reflection (15 minutes)
 
-<br>
+
 ## Takeaway (5 minutes)
 Wasting Time on the Internet by Kenneth Goldsmith <br>
 Comparison: There's a New Movement in American Poetry and It's Not Kenneth Goldsmith by Cath Park Hong
