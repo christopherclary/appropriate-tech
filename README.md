@@ -10,22 +10,15 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 ## Overview (15 minutes)
 
 ### Appropriation <br>
-History <br>
-Internet <br>
-Form
+History -- Marcel Duchamp's readymades <br>
+In the digital age -- Pig-pen from Peanuts <br>
 
-### Questions <br>
-We will discuss your thoughts about the painting in relation to who is speaking for whom and how. <b>Who</b> — from what position was Dana creating? <b>Whom</b> — Parker or Neïl? What positions are fixed, where is identity fluid, and would there have been another way for Dana to appropriate the Emmett Til photograph? <b>How</b> — what technologies were used here in the making and distributing of the artwork? Did the tech change things?  
-
-<br>
 ## Examples (10 minutes)
-Zines
 
-Sorry to dump on you like this.zip by Christopher Clary <br>
+The Official Cockettes Paper Doll Book by Clay Geerdes <br>
 For Everard by Anthony Malone <br>
 [NOPE 45] by Sebastian Hutchinson
 
-<br>
 ## Work (75 minutes)
 
 ### Warm-up<br>
