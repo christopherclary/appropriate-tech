@@ -2,7 +2,7 @@
 
 In this half-day workshop students will use their online personas to create art about themselves and their classmates. First we'll discuss appropriation versus privacy and artistic freedom versus social justice — looking at a few key artists and authors who use the Internet as raw material. Students will then create a self-portrait using content from their emails, texts, apps, and feeds. Finally, students will share content from their archive for the class to create group portraits. This last gesture asks students to not only entrust one another with their content but trust individual voices can speak for others and the group.  
 
-## Homework 
+## Homework (15 minutes)
 Please watch this [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) about the controversy surrounding Dana Schutz's painting from the 2017 Whitney Biennial. Then read this [article](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) about Parker Bright who protested Dana's painting and was the subject of a Neïl Beloufa work at the Palais de Tokyo museum in Paris.<br>
 
 Think about who. From what position was Dana creating? Then whom. How did this effect Parker and Neïl and then Parker again? How did technology play a part? Not just in the distribution but the making of art.
