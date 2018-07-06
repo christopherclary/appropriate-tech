@@ -10,7 +10,7 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 ## Warm-up (30 minutes)
 
 <b>Introductions</b><br>
-Take a Hello sticker. Write down a password that you use. Don't show it to anyone. Talk about how you picked your password. Ask how other people picked their passwords. Explain what you like and don’t like about it. Now give away your Hello sticker to someone else. Stick your classmates' password to your chest. This is your name for the rest of the class.<br>
+Take a Hello sticker. Write down a password that you use. Don't show it to anyone. Talk about how you picked your password without reveling it. Explain what you like and don’t like about it. Now give away your Hello sticker to someone else. Stick your classmates' password to your chest. This is your name for the rest of the class.<br>
 
 <b>Appropriation</b> <br>
 Appropriation in art is the use of pre-existing objects or images with little or no transformation applied to them. The use of appropriation has played a significant role in the history of the arts (literary, visual, musical, performing, and net art). In the visual arts, to appropriate means to properly adopt, borrow, recycle or sample aspects (or the entire form) of human-made visual culture. Notable in this respect are the Readymades of Marcel Duchamp. (Wikipedia)<br>
