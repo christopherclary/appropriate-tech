@@ -14,7 +14,7 @@ Take a Hello sticker.<br>
 Write down a password that you use. Don't show it to anyone.<br>
 Talk about how you picked your password without reveling it. Explain what you like and don’t like about it.<br>
 Now give away your Hello sticker to someone else.<br>
-Stick your classmates' password to your chest. This is your name for the class.<br>
+Stick your classmate's password to your chest. This is your name for the class.<br>
 
 <b>Appropriation</b> <br>
 Appropriation in art is the use of pre-existing objects or images with little or no transformation applied to them. The use of appropriation has played a significant role in the history of the arts (literary, visual, musical, performing, and net art). To appropriate means to adopt, borrow, recycle, sample, or cut and paste aspects or the entirity of a thing. Notable in this respect are the readymades of Marcel Duchamp. (Wikipedia)<br>
