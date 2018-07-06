@@ -7,7 +7,7 @@ Take 15 minutes to watch this [video](https://video.vice.com/en_us/embed/58dabba
 
 Think about who. From what position was Dana creating? Then whom. How did this effect Parker and Neïl and then Parker again? How did technology play a part? Not just in the distribution but the making of art.
 
-## Warm-up (30 minutes)
+## Warmup (30 minutes)
 
 <b>Introductions</b><br>
 Take a Hello sticker. Write down a password that you use. Don't show it to anyone. Talk about how you picked your password without reveling it. Explain what you like and don’t like about it. Now give away your Hello sticker to someone else. Stick your classmates' password to your chest. This is your name for the rest of the class.<br>
@@ -18,7 +18,7 @@ Appropriation in art is the use of pre-existing objects or images with little or
 In the digital age we're all appropriation artists. Like Pig-Pen from Peanuts. Each moment he steps or shakes his head – Pig-pen generates more visible dust. He moves through the world inscribing the contemporary into his digital cloud, adding the dirt of the day to his already thickly layered historical record. His critics – the entire cast of Peanuts – often accuse him of wallowing in his dirt, of taking hedonistic pleasure in his condition. As an outcast, he assumes the role of the trickster, a figure who, defying normative community-based behavioral standards, is the keeper of a database of deep and secret knowledge. His cloud is a haze, an ambience, a network that can’t be defined by specific boundaries. He is at once physical and ephemeral. (Kenneth Goldsmith)<br>
 
 <b>Zines</b><br>
-A zine is a small-circulation self-published work of original or appropriated texts and images, usually reproduced via photocopier. Zines are either the product of a single person, or of a very small group and are popularly photocopied into physical prints for circulation. Dissidents and members of socially marginalized groups have published their own opinions in leaflet and pamphlet form for as long as such technology has been available. The concept of zines had an ancestor in the amateur press movement of the late 19th and early 20th century, which would in its turn cross-pollinate with the subculture of science fiction fandom in the 1930s. The popular graphic-style associated with zines is influenced artistically and politically by the subcultures of Dada, Fluxus, Surrealism and Situationism. (Wikipedia)<br><br>
+A zine is a small-circulation self-published work of original or appropriated texts and images, usually reproduced via photocopier. Zines are either the product of a single person, or of a very small group and are popularly photocopied into physical prints for circulation. Dissidents and members of socially marginalized groups have published their own opinions in leaflet and pamphlet form for as long as such technology has been available. The concept of zines had an ancestor in the amateur press movement of the late 19th and early 20th century, which would in its turn cross-pollinate with the subculture of science fiction fandom in the 1930s. The popular graphic-style associated with zines is influenced artistically and politically by the subcultures of Dada, Fluxus, Surrealism and Situationism. (Wikipedia)<br>
 
 <b>Examples</b><br>
 The Official Cockettes Paper Doll Book by Clay Geerdes <br>
