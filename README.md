@@ -11,8 +11,7 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 
 <b>Introductions</b><br>
 Take a Hello sticker.<br>
-Write down a password that you use.<br>
-Don't show it to anyone.<br>
+Write down a password that you use. Don't show it to anyone.<br>
 Talk about how you picked your password without reveling it. Explain what you like and don’t like about it.<br>
 Now give away your Hello sticker to someone else.<br>
 Stick your classmates' password to your chest. This is your name for the class.<br>
