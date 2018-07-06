@@ -10,16 +10,19 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 ## Warm-up (30 minutes)
 
 <b>Introductions</b><br>
-Open up the class Google Hangouts. Type your first name into the Write your first name on a Hello sticker. I will give my sticker to someone and take their. Then they give my name to someone and take their. So on until everyone has given their name away. Wear the sticker. For the remainder of the class this is your name. Does anyone what to share why they gave away or took the name that they did? <br>
+Take a Hello sticker. Write down a password that you use. Don't show it to anyone. Talk about how you picked your password. Ask how other people picked their passwords. Explain what you like and don’t like about it. Now give your Hello sticker away to someone else. Now stick it to our chest. Wear it. This is your name for the rest of the class.<br>
 
 <b>What is appropriation?</b> <br>
 History -- Marcel Duchamp's readymades <br>
 In the digital age -- Pig-pen from Peanuts <br>
 
 <b>Why zines?</b><br>
-History -- The Official Cockettes Paper Doll Book by Clay Geerdes <br>
-In the digital age -- For Everard by Anthony Malone <br>
-Social justice -- [NOPE 45] by Sebastian Hutchinson
+The Official Cockettes Paper Doll Book by Clay Geerdes <br>
+Punk, cut and paste, appropriating identity<br><br>
+For Everard by Anthony Malone <br>
+Historical, social, memorial <br><br>
+[NOPE 45] by Sebastian Hutchinson <br>
+Social justice, social, personal
 
 ## Work (65 minutes)
 
