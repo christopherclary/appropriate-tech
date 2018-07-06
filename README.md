@@ -10,7 +10,7 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 ## Warmup (30 minutes)
 
 <b>Introductions</b><br>
-1 take a Hello sticker<br>
+1 take a "hello-my-name-is" sticker<br>
 2 write down a password that you use and don't show it to anyone<br>
 3 Talk about how you picked your password without reveling it and explain what you like and don’t like about it<br>
 4 now give away your Hello sticker to someone else<br>
