@@ -32,8 +32,7 @@ A zine is a small-circulation self-published work of original or appropriated te
 
 ## Work (70 minutes)
 
-<b>Self-portraits</b><br>
-Building an archive<br>
+<b>Building an archive</b><br>
 1 open a web browser<br>
 2 clear your browser history<br>
 3 think of a website, page, or post that you like, that represents who you are, navigate to it, stop<br>
@@ -42,7 +41,7 @@ Building an archive<br>
 6 rotate one seat again and you have one minute to review and click on one thing, stop<br>
 7 repeat above until you're back at your computer<br>
 
-Feed your feed<br>
+<b>Feed your feed</b><br>
 1 review your browser history<br>
 2 anything you see or read is raw material<br>
 3 collect text, image, video, whatever you want and place it in a social media feed of yours<br>
