@@ -25,7 +25,7 @@ The Official Cockettes Paper Doll Book by Clay Geerdes <br>
 For Everard by Anthony Malone <br>
 [NOPE 45] by Sebastian Hutchinson <br>
 
-## Work (65 minutes)
+## Work (70 minutes)
 
 <b>Self-portraits</b><br>
 Open a web browser. Clear your browser history. Think of a website, page, or post that you like. That represents who you are. Navigate to it. Stop. Everyone rotate one seat. You have one minute to review what's on the browser and click on one thing. Stop. Rotate sears again. One minute to review and click one thing. Stop. Repeat above until you're back at your computer.
@@ -43,7 +43,7 @@ Print your feeds using Eyebeam's black and white laser printer. Use sissors and 
 
 
 
-## Share (20 minutes)
+## Share (15 minutes)
 
 
 ## Reference (5 minutes)
