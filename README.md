@@ -10,15 +10,15 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 ## Warm-up (30 minutes)
 
 <b>Introductions</b><br>
-Take a Hello sticker. Write down a password that you use. Don't show it to anyone. Talk about how you picked your password. Ask how other people picked their passwords. Explain what you like and don’t like about it. Now give your Hello sticker away to someone else. Now stick it to our chest. Wear it. This is your name for the rest of the class.<br>
+Take a Hello sticker. Write down a password that you use. Don't show it to anyone. Talk about how you picked your password. Ask how other people picked their passwords. Explain what you like and don’t like about it. Now give away your Hello sticker to someone else. Stick your classmates' password to your chest. This is your name for the rest of the class.<br>
 
 <b>Appropriation</b> <br>
-Appropriation in art is the use of pre-existing objects or images with little or no transformation applied to them. The use of appropriation has played a significant role in the history of the arts (literary, visual, musical, performing, and net art). In the visual arts, to appropriate means to properly adopt, borrow, recycle or sample aspects (or the entire form) of human-made visual culture. Notable in this respect are the Readymades of Marcel Duchamp.<br>
+Appropriation in art is the use of pre-existing objects or images with little or no transformation applied to them. The use of appropriation has played a significant role in the history of the arts (literary, visual, musical, performing, and net art). In the visual arts, to appropriate means to properly adopt, borrow, recycle or sample aspects (or the entire form) of human-made visual culture. Notable in this respect are the Readymades of Marcel Duchamp. (Wikipedia)<br>
 
-In the digital age we're all appropriation artists. Like Pig-Pen from Peanuts. Each moment he steps or shakes his head – Pig-pen generates more visible dust. He moves through the world inscribing the contemporary into his digital cloud, adding the dirt of the day to his already thickly layered historical record. His critics – the entire cast of Peanuts – often accuse him of wallowing in his dirt, of taking hedonistic pleasure in his condition. As an outcast, he assumes the role of the trickster, a figure who, defying normative community-based behavioral standards, is the keeper of a database of deep and secret knowledge. His cloud is a haze, an ambience, a network that can’t be defined by specific boundaries. He is at once physical and ephemeral.<br>
+In the digital age we're all appropriation artists. Like Pig-Pen from Peanuts. Each moment he steps or shakes his head – Pig-pen generates more visible dust. He moves through the world inscribing the contemporary into his digital cloud, adding the dirt of the day to his already thickly layered historical record. His critics – the entire cast of Peanuts – often accuse him of wallowing in his dirt, of taking hedonistic pleasure in his condition. As an outcast, he assumes the role of the trickster, a figure who, defying normative community-based behavioral standards, is the keeper of a database of deep and secret knowledge. His cloud is a haze, an ambience, a network that can’t be defined by specific boundaries. He is at once physical and ephemeral. (Kenneth Goldsmith)<br>
 
 <b>Zines</b><br>
-A zine is a small-circulation self-published work of original or appropriated texts and images, usually reproduced via photocopier. Zines are either the product of a single person, or of a very small group and are popularly photocopied into physical prints for circulation. Dissidents and members of socially marginalized groups have published their own opinions in leaflet and pamphlet form for as long as such technology has been available. The concept of zines had an ancestor in the amateur press movement of the late 19th and early 20th century, which would in its turn cross-pollinate with the subculture of science fiction fandom in the 1930s. The popular graphic-style associated with zines is influenced artistically and politically by the subcultures of Dada, Fluxus, Surrealism and Situationism.<br><br>
+A zine is a small-circulation self-published work of original or appropriated texts and images, usually reproduced via photocopier. Zines are either the product of a single person, or of a very small group and are popularly photocopied into physical prints for circulation. Dissidents and members of socially marginalized groups have published their own opinions in leaflet and pamphlet form for as long as such technology has been available. The concept of zines had an ancestor in the amateur press movement of the late 19th and early 20th century, which would in its turn cross-pollinate with the subculture of science fiction fandom in the 1930s. The popular graphic-style associated with zines is influenced artistically and politically by the subcultures of Dada, Fluxus, Surrealism and Situationism. (Wikipedia)<br><br>
 The Official Cockettes Paper Doll Book by Clay Geerdes <br>
 Punk, cut and paste, appropriating identity<br><br>
 For Everard by Anthony Malone <br>
@@ -48,14 +48,12 @@ Print your feeds using Eyebeam's black and white laser printer. Use sissors and 
 
 
 ## Reference (5 minutes)
+Texts
 Wasting Time on the Internet by Kenneth Goldsmith <br>
-
 There's a New Movement in American Poetry and It's Not Kenneth Goldsmith by Cath Park Hong
 
+Art
 Sorry to dump on you like this.zip by Christpher Clary <br>
-Comparison: Dark Room by Paul Mpagi Sepuya
-
 Our Arrival by Allison Parrish
-Comparison: 
 
 
