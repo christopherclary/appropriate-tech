@@ -10,7 +10,8 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 ## Warm-up (30 minutes)
 
 <b>Introductions</b><br>
-Everyone cue up a favorite song on your desktop, video or audio. On the count of 3 press play. Write down as many songs that you recognize. Now everyone cue up the song that was most recognized. On the count of 3 press play. Take two Hello My Name Is stickers. In one write the first name of the artist from your favorite song. Now write the first name in the second sticker of the morst recongnized artist. Choose which one you want to stick on yourself. Throw away the other. <br>
+Everyone cue up a favorite music video on your desktop. On the count of 3 press play. Write down as many artists that you recognize. Now everyone search and cue up the most recognized music video. On the count of 3 press play.  <br> <br> 
+Take two Hello My Name Is stickers. In one write the first name of the artist from your favorite song. Now write the first name in the second sticker of the morst recongnized artist. Choose which one you want to stick on yourself. Throw away the other.
 
 <b>What is appropriation?</b> <br>
 History -- Marcel Duchamp's readymades <br>
