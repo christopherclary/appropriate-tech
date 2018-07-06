@@ -12,12 +12,12 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 <b>Introductions</b><br>
 Take a Hello sticker. Write down a password that you use. Don't show it to anyone. Talk about how you picked your password. Ask how other people picked their passwords. Explain what you like and don’t like about it. Now give your Hello sticker away to someone else. Now stick it to our chest. Wear it. This is your name for the rest of the class.<br>
 
-<b>What is appropriation?</b> <br>
-Appropriation in art is the use of pre-existing objects or images with little or no transformation applied to them.[1] The use of appropriation has played a significant role in the history of the arts (literary, visual, musical and performing arts). In the visual arts, to appropriate means to properly adopt, borrow, recycle or sample aspects (or the entire form) of human-made visual culture. Notable in this respect are the Readymades of Marcel Duchamp.<br><br>
+<b>Appropriation</b> <br>
+Appropriation in art is the use of pre-existing objects or images with little or no transformation applied to them. The use of appropriation has played a significant role in the history of the arts (literary, visual, musical, performing, and net art). In the visual arts, to appropriate means to properly adopt, borrow, recycle or sample aspects (or the entire form) of human-made visual culture. Notable in this respect are the Readymades of Marcel Duchamp.<br>
 
 Pig-pen from Peanuts <br>
 
-<b>Why zines?</b><br>
+<b>Zines</b><br>
 A zine is a small-circulation self-published work of original or appropriated texts and images, usually reproduced via photocopier. Zines are either the product of a single person, or of a very small group and are popularly photocopied into physical prints for circulation. Dissidents and members of socially marginalized groups have published their own opinions in leaflet and pamphlet form for as long as such technology has been available. The concept of zines had an ancestor in the amateur press movement of the late 19th and early 20th century, which would in its turn cross-pollinate with the subculture of science fiction fandom in the 1930s. The popular graphic-style associated with zines is influenced artistically and politically by the subcultures of Dada, Fluxus, Surrealism and Situationism.<br><br>
 The Official Cockettes Paper Doll Book by Clay Geerdes <br>
 Punk, cut and paste, appropriating identity<br><br>
