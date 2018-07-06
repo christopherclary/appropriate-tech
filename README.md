@@ -33,19 +33,19 @@ A zine is a small-circulation self-published work of original or appropriated te
 ## Work (70 minutes)
 
 <b>Self-portraits</b><br>
-Building an archive
-1 open a web browser
-2 clear your browser history
-3 think of a website, page, or post that you like, that represents who you are, navigate to it, stop
-4 everyone rotate one seat
-5 you have one minute to review what's on the browser and click on one thing, stop
-6 rotate one seat again and you have one minute to review and click on one thing, stop
-7 repeat above until you're back at your computer
+Building an archive<br>
+1 open a web browser<br>
+2 clear your browser history<br>
+3 think of a website, page, or post that you like, that represents who you are, navigate to it, stop<br>
+4 everyone rotate one seat<br>
+5 you have one minute to review what's on the browser and click on one thing, stop<br>
+6 rotate one seat again and you have one minute to review and click on one thing, stop<br>
+7 repeat above until you're back at your computer<br>
 
-Feed your feed
-1 review your browser history
-2 anything you see or read is raw material
-3 collect text, image, video, whatever you want and place it in a social media feed of yours
+Feed your feed<br>
+1 review your browser history<br>
+2 anything you see or read is raw material<br>
+3 collect text, image, video, whatever you want and place it in a social media feed of yours<br>
 
 Your browser history and anything on each of these pages is now raw material for your zine. Review it, collect text, images, video, whatever you want to use for your zine. Post these assests to a feed (Facebook, Snapchat, Tumblr, etc.). 
 
