@@ -10,7 +10,7 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 ## Warm-up (30 minutes)
 
 <b>Introductions</b><br>
-Everyone write your first name on a Hello sticker. Give your sticker to someone else. Put your sticker on your chest. For the remainder of the class this is your name. Why did you give your name to that person? <br>
+Everyone write your first name on a Hello sticker. Give your sticker to someone else. Put your sticker on your chest. For the remainder of the class this is your name. Does anyone what to share why they give their name to that person? <br>
 
 <b>What is appropriation?</b> <br>
 History -- Marcel Duchamp's readymades <br>
