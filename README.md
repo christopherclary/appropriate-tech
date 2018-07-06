@@ -19,12 +19,11 @@ In the digital age we're all appropriation artists. Like Pig-Pen from Peanuts. E
 
 <b>Zines</b><br>
 A zine is a small-circulation self-published work of original or appropriated texts and images, usually reproduced via photocopier. Zines are either the product of a single person, or of a very small group and are popularly photocopied into physical prints for circulation. Dissidents and members of socially marginalized groups have published their own opinions in leaflet and pamphlet form for as long as such technology has been available. The concept of zines had an ancestor in the amateur press movement of the late 19th and early 20th century, which would in its turn cross-pollinate with the subculture of science fiction fandom in the 1930s. The popular graphic-style associated with zines is influenced artistically and politically by the subcultures of Dada, Fluxus, Surrealism and Situationism. (Wikipedia)<br><br>
+
+<b>Examples</b><br>
 The Official Cockettes Paper Doll Book by Clay Geerdes <br>
-Punk, cut and paste, appropriating identity<br><br>
 For Everard by Anthony Malone <br>
-Historical, social, memorial <br><br>
 [NOPE 45] by Sebastian Hutchinson <br>
-Political, social, personal
 
 ## Work (65 minutes)
 
