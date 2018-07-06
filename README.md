@@ -7,7 +7,7 @@ Take 15 minutes to watch this [video](https://video.vice.com/en_us/embed/58dabba
 
 Think about who. From what position was Dana creating? Then whom. How did this effect Parker and Neïl and then Parker again? How did technology play a part? Not just in the distribution but the making of art.
 
-## Overview (30 minutes)
+## Warm-up (30 minutes)
 
 <b>Introductions</b><br>
 Everyone cue up a favorite song on your desktop, video or audio. On the count of 3 press play. Write down as many songs that you recognize. Now everyone cue up the song that was most recognized. On the count of 3 press play. Take a Hello My Name Is sticker and write the first name of the most recognized artist. We will now refer to each other as this artist for the workshop. <br>
