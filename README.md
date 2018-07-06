@@ -39,10 +39,10 @@ Print your feeds using Eyebeam's black and white laser printer. Use sissors and 
 
 
 
-## Share and reflection (20 minutes)
+## Share (20 minutes)
 
 
-## Takeaway (5 minutes)
+## Reference (5 minutes)
 Wasting Time on the Internet by Kenneth Goldsmith <br>
 
 There's a New Movement in American Poetry and It's Not Kenneth Goldsmith by Cath Park Hong
