@@ -42,9 +42,10 @@ A zine is a small-circulation self-published work of original or appropriated te
 7 repeat above until you're back at your computer<br>
 
 <b>Feed your feed</b><br>
-1 review your browser history<br>
-2 anything you see or read is raw material<br>
-3 collect text, image, video, whatever you want and place it in a social media feed of yours<br>
+1 review your browser history because anything you see or read is raw material<br>
+3 cut and paste text, image, video, whatever you want and place to one of your social media accounts<br>
+3 use the hashtags #selfportrait #digitaldaycamp
+4 use a 3rd hastags #share for those posts that you'd like to share with your classmates as raw material
 
 Your browser history and anything on each of these pages is now raw material for your zine. Review it, collect text, images, video, whatever you want to use for your zine. Post these assests to a feed (Facebook, Snapchat, Tumblr, etc.). 
 
