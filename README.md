@@ -52,7 +52,7 @@ Print your feeds using Eyebeam's black and white laser printer. Use sissors and 
 [There's a New Movement in American Poetry and It's Not Kenneth Goldsmith](https://newrepublic.com/article/122985/new-movement-american-poetry-not-kenneth-goldsmith) by Cath Park Hong
 
 <b>Art</b><br>
-[Sorry to dump on you like this.zip](http://rhizome.org/editorial/2015/nov/12/the-download/) by Christpher Clary <br>
+Sorry to dump on you like this [ZIP](http://rhizome.org/editorial/2015/nov/12/the-download/) and [PDF](https://www.dropbox.com/s/bht52g49ltithv8/Sorry%20to%20dump%20on%20you%20like%20this%20_spreads.pdf?dl=0) by Christpher Clary <br>
 Our Arrival [PDF](http://s3.amazonaws.com/aparrish/our-arrival.pdf) and [GitHub](https://github.com/aparrish/nanogenmo2015) by Allison Parrish
 
 
