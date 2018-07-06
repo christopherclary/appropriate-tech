@@ -48,12 +48,12 @@ Print your feeds using Eyebeam's black and white laser printer. Use sissors and 
 
 
 ## Reference (5 minutes)
-Texts
-Wasting Time on the Internet by Kenneth Goldsmith <br>
-There's a New Movement in American Poetry and It's Not Kenneth Goldsmith by Cath Park Hong
+<b>Texts</b><br>
+[Wasting Time on the Internet](https://play.google.com/store/books/details?pcampaignid=books_read_action&id=GfcOCwAAQBAJ) by Kenneth Goldsmith <br>
+[There's a New Movement in American Poetry and It's Not Kenneth Goldsmith](https://newrepublic.com/article/122985/new-movement-american-poetry-not-kenneth-goldsmith) by Cath Park Hong
 
-Art
-Sorry to dump on you like this.zip by Christpher Clary <br>
-Our Arrival by Allison Parrish
+<b>Art</b><br>
+[Sorry to dump on you like this.zip](http://rhizome.org/editorial/2015/nov/12/the-download/) by Christpher Clary <br>
+Our Arrival [PDF](http://s3.amazonaws.com/aparrish/our-arrival.pdf) and [GitHub](https://github.com/aparrish/nanogenmo2015) by Allison Parrish
 
 
