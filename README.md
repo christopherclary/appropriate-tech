@@ -60,4 +60,8 @@ Print your feeds using Eyebeam's black and white laser printer. Use sissors and 
 Sorry to dump on you like this [ZIP](http://rhizome.org/editorial/2015/nov/12/the-download/) and [PDF](https://www.dropbox.com/s/bht52g49ltithv8/Sorry%20to%20dump%20on%20you%20like%20this%20_spreads.pdf?dl=0) by Christpher Clary <br>
 Our Arrival [PDF](http://s3.amazonaws.com/aparrish/our-arrival.pdf) and [GitHub](https://github.com/aparrish/nanogenmo2015) by Allison Parrish
 
+<b>Shows</b><br>
+[p0es1s – Postdigital show](http://p-dpa.net/p0es1s/) at Kunsttempel, Germany by Silvio Lorusso <br>
+[Emergency Readings](https://christopherclary.com/emergency-readings) at International Center of Photography Library and Museum by Christopher Clary
+
 
