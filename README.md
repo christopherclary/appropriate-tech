@@ -1,6 +1,6 @@
 # Appropriate Tech: who can speak for whom and how
 
-In this workshop students will use their online personas to create art about themselves and their classmates. First we'll discuss appropriation versus privacy and artistic freedom versus social justice — looking at recent art controversies. We'll then learn about zine culture as technology and a form of resistance. Students will then create a self-portrait with the help from their fellow students using content from the web. Finally, students print, cut and paste their online portrait into a physical zine. turn this content into a physical zine share content from their archive for the class to create group portraits. This last gesture asks students to not only entrust one another with their content but trust individual voices can speak for others and the group.  
+In this workshop students will use their online personas to create art about themselves and their classmates. First we'll discuss appropriation versus privacy and artistic freedom versus social justice — looking at a recent art world controversy. Then we'll learn about zine culture and how it embraces and critques appropriation. Students will create a self-portrait zine using a thread from their emails, texts, apps, and feeds. Finally, students will protray each other using the same material as a way to see one another differently. Trusting each other with their personas.    
 
 ## Homework (15 minutes)
 Take 15 minutes to watch this [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) about the controversy surrounding Dana Schutz's painting from the 2017 Whitney Biennial. Then read this [article](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) about Parker Bright who protested Dana's painting and was the subject of a Neïl Beloufa work at the Palais de Tokyo museum in Paris.<br>
@@ -33,17 +33,13 @@ A zine is a small-circulation self-published work of original or appropriated te
 ## Work (70 minutes)
 
 <b>Building an archive</b><br>
-1 open a web browser<br>
-2 clear your browser history<br>
-3 think of a website, page, or post that you like, that represents who you are, navigate to it, stop<br>
-4 everyone rotate one seat<br>
-5 you have one minute to review what's on the browser and click on one thing, stop<br>
-6 rotate one seat again and you have one minute to review and click on one thing, stop<br>
-7 repeat above until you're back at your computer<br>
+1 open your feeds<br>
+2 find a single thread that you'd like to use as raw material<br>
+3 tag each post within the thread with a title<br>
 
-<b>Feed your feed</b><br>
-1 review your browser history because anything you see or read is raw material<br>
-3 cut and paste text, image, video, whatever you want and place to one of your social media accounts<br>
+<b>URL to IRL</b><br>
+1 search on your title<br>
+3 screenshot, organize, prep<br>
 3 use the hashtags #selfportrait #digitaldaycamp
 4 use a 3rd hastags #share for those posts that you'd like to share with your classmates as raw material
 
