@@ -40,7 +40,7 @@ A zine is a small-circulation self-published work of original or appropriated te
 <b>URL to IRL</b><br>
 1 search on your title<br>
 2 screenshot, organize, prep for b/w printing<br>
-3 print two copies of each asset
+3 print two copies of each asset<br>
 4 put one set aside
 
 <b>Cut, Paste, Copy, Repeat</b><br>
@@ -57,6 +57,11 @@ A zine is a small-circulation self-published work of original or appropriated te
 
 ## Share (15 minutes)
 
+What story are you telling? <br>
+From what position? <br>
+Whom does it effect? <br>
+How is the zine similar and different from the actual thread? <br>
+How is your self-portrait similar and different from the portrait your classmate did of you?
 
 ## Takeaway (5 minutes)
 <b>Texts</b><br>
