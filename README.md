@@ -32,29 +32,28 @@ A zine is a small-circulation self-published work of original or appropriated te
 
 ## Work (70 minutes)
 
-<b>Building an archive</b><br>
+<b>Building an Archive</b><br>
 1 open your feeds<br>
 2 find a single thread that you'd like to use as raw material<br>
 3 tag each post within the thread with a title<br>
 
 <b>URL to IRL</b><br>
 1 search on your title<br>
-3 screenshot, organize, prep<br>
-3 use the hashtags #selfportrait #digitaldaycamp
-4 use a 3rd hastags #share for those posts that you'd like to share with your classmates as raw material
+2 screenshot, organize, prep for b/w printing<br>
+3 print two copies of each asset
+4 put one set aside
 
-Your browser history and anything on each of these pages is now raw material for your zine. Review it, collect text, images, video, whatever you want to use for your zine. Post these assests to a feed (Facebook, Snapchat, Tumblr, etc.). 
+<b>Cut, Paste, Copy, Repeat</b><br>
+1 use one set for your self-portrait zine
+2 think about your material across a 12-page zine<br>
+3 cut out shapes, paste, embellish, draw, copy them again on the printer<br>
+4 fold 3 letter-size sheets in half
+5 use the stapler
 
-Print your feeds using Eyebeam's black and white laser printer. Use sissors and glue to arrange your material onto three letter size sheets. When finished, copy them on the black and white printer. Fold them in half. Collate them. Bind them with the stapler.
-
-<b>Group-portraits</b><br>
-Open a web browser. Clear your browser history. Think of a website, page, or post that you like. That represents who you are. Navigate to it. Stop. Everyone rotate one seat. You have one minute to review what's on the browser and click on one thing. Stop. Rotate sears again. One minute to review and click one thing. Stop. Repeat above until you're back at your computer.
-
-Your browser history and anything on each of these pages is now raw material for your zine. Review it, collect text, images, video, whatever you want to use for your zine. Post these assests to a feed (Facebook, Snapchat, Tumblr, etc.). 
-
-Print your feeds using Eyebeam's black and white laser printer. Use sissors and glue to arrange your material onto three letter size sheets. When finished, copy them on the black and white printer. Fold them in half. Collate them. Bind them with the stapler.
-
-
+<b>Appropriate a Classmate</b><br>
+1 randomly choose a classmates set of prints<br>
+2 review material<br>
+3 repeat above steps to create a portrait of your classmate
 
 ## Share (15 minutes)
 
