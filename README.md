@@ -1,6 +1,6 @@
 # Appropriate Tech: who can speak for whom and how
 
-In this workshop students will use their online personas to create art about themselves and their classmates. First we'll discuss appropriation versus privacy and artistic freedom versus social justice — looking at a recent art world controversy. Then we'll learn about zine culture and how it embraces and critques appropriation. Students will create a self-portrait zine using a thread from their emails, texts, apps, or feeds. Finally, students will protray each other using the same material as a way to see one another differently. Trusting each other with their content.    
+In this workshop students will use their online personas to create art about themselves and their classmates. First we'll discuss appropriation versus privacy and artistic freedom versus social justice — looking at a recent art world controversy. Then we'll learn about zine culture and how it embraces and critques appropriation. Students will create a self-portrait zine using a thread from their emails, texts, apps, or feeds. Finally, students will portray each other using the same material as a way to see one another differently. Trusting each other with their content.    
 
 ## Homework (15 minutes)
 Take 15 minutes to watch this [video](https://video.vice.com/en_us/embed/58dabbab91d237b4148aa34f) about the controversy surrounding Dana Schutz's painting from the 2017 Whitney Biennial. Then read this [article](https://news.artnet.com/art-world/parker-bright-paris-protest-1227947) about Parker Bright who protested Dana's painting and was the subject of a Neïl Beloufa work at the Palais de Tokyo museum in Paris.<br>
@@ -51,7 +51,7 @@ A zine is a small-circulation self-published work of original or appropriated te
 5 use the stapler
 
 <b>Appropriate a Classmate</b><br>
-1 randomly choose a classmates set of prints<br>
+1 randomly choose a classmate's set of prints<br>
 2 review material<br>
 3 repeat above steps to create a portrait of your classmate
 
