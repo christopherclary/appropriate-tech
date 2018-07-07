@@ -44,10 +44,10 @@ A zine is a small-circulation self-published work of original or appropriated te
 4 put one set aside
 
 <b>Cut, Paste, Copy, Repeat</b><br>
-1 use one set for your self-portrait zine
+1 use one set for your self-portrait zine<br>
 2 think about your material across a 12-page zine<br>
 3 cut out shapes, paste, embellish, draw, copy them again on the printer<br>
-4 fold 3 letter-size sheets in half
+4 fold 3 letter-size sheets in half<br>
 5 use the stapler
 
 <b>Appropriate a Classmate</b><br>
