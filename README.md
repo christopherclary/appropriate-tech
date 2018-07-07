@@ -33,7 +33,7 @@ A zine is a small-circulation self-published work of original or appropriated te
 ## Work (70 minutes)
 
 <b>Building an Archive</b><br>
-1 open your feeds<br>
+1 open your emails, texts, apps, and feeds<br>
 2 find a single thread that you'd like to use as raw material<br>
 3 tag each post within the thread with a title<br>
 
