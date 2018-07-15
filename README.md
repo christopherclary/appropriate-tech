@@ -65,7 +65,7 @@ How is your self-portrait similar and different from the portrait your classmate
 ## Takeaway (5 minutes)
 <b>Texts</b><br>
 [Wasting Time on the Internet](https://play.google.com/store/books/details?pcampaignid=books_read_action&id=GfcOCwAAQBAJ) by Kenneth Goldsmith <br>
-[There's a New Movement in American Poetry and It's Not Kenneth Goldsmith](https://newrepublic.com/article/122985/new-movement-american-poetry-not-kenneth-goldsmith) by Cath Park Hong
+[There's a New Movement in American Poetry and It's Not Kenneth Goldsmith](https://newrepublic.com/article/122985/new-movement-american-poetry-not-kenneth-goldsmith) by Cathy Park Hong
 
 <b>Art</b><br>
 Sorry to dump on you like this [ZIP](http://rhizome.org/editorial/2015/nov/12/the-download/) and [PDF](https://www.dropbox.com/s/bht52g49ltithv8/Sorry%20to%20dump%20on%20you%20like%20this%20_spreads.pdf?dl=0) by Christpher Clary <br>
