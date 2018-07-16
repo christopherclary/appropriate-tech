@@ -10,12 +10,11 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 ## Warmup (30 minutes)
 
 <b>Introductions</b><br>
-1 take a hello-my-name-is sticker<br>
-2 write down a password that you use and don't show it to anyone<br>
-3 talk about how you picked your password without reveling it and explain what you like and don’t like about it<br>
-4 now give away your sticker to someone else<br>
-5 stick your classmate's password to your chest<br>
-6 this is your name for the class<br>
+1 take a couple hello-my-name-is stickers<br>
+2 write down several user IDs that you use<br>
+3 talk about how you picked each ID and explain what you like and don’t like about it<br>
+4 stick as many IDs you want onto yourself<br>
+5 save one for the group
 
 <b>Appropriation</b> <br>
 Appropriation in art is the use of pre-existing objects or images with little or no transformation applied to them. The use of appropriation has played a significant role in the history of the arts (literary, visual, musical, performing, and net art). To appropriate means to adopt, borrow, recycle, sample, or cut and paste aspects or the entirity of a thing. Notable in this respect are the readymades of Marcel Duchamp.<sup>[1](https://en.wikipedia.org/wiki/Appropriation_(art))</sup><br>
@@ -33,7 +32,7 @@ A zine is a small-circulation self-published work of original or appropriated te
 ## Work (70 minutes)
 
 <b>Building an Archive</b><br>
-1 open your emails, texts, apps, and feeds<br>
+1 open your emails, texts, apps, and feeds that use an ID from your Hello stickers<br>
 2 find a single thread that you'd like to use as raw material<br>
 3 tag each post within the thread with a title<br>
 
@@ -48,6 +47,7 @@ A zine is a small-circulation self-published work of original or appropriated te
 2 cut out, paste, embellish, draw, copy, and print again and again<br>
 3 fold 3 letter-size sheets in half<br>
 4 bind your zine with the stapler
+5 place your Hello sticker on the cover
 
 <b>Appropriate a Classmate</b><br>
 1 randomly choose a classmate's set of prints<br>
