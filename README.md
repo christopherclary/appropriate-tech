@@ -26,7 +26,7 @@ A zine is a small-circulation self-published work of original or appropriated te
 
 <b>Examples</b><br>
 • [The Official Cockettes Paper Doll Book](http://bobcat.library.nyu.edu/primo-explore/fulldisplay?docid=nyu_aleph004600926&context=L&vid=NYU&lang=en_US&search_scope=all&adaptor=Local%20Search%20Engine&tab=all&query=title,exact,The%20official%20Cockettes%20T.M.%20paper%20doll%20book%20%2F,AND&sortby=rank&mode=advanced&offset=1) by John Flowers and Clay Geerdes <br>
-• [For Everard](https://opac.libraryworld.com/opac/standard.php) by Anthony Malone <br>
+• [For Everard](https://opac.libraryworld.com/opac/catalog_edit.php?catalog_id=29598&from_doc=standard.php&position=1) by Anthony Malone <br>
 • [[NOPE 45]](https://opac.libraryworld.com/opac/catalog_edit.php?catalog_id=29407&from_doc=standard.php&position=1) by Sebastian Hutchinson <br>
 
 ## Work (70 minutes)
