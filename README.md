@@ -12,7 +12,7 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 <b>Introductions</b><br>
 1 take a couple hello-my-name-is stickers<br>
 2 write down several user IDs that you use<br>
-3 stick one IDs to your chest<br>
+3 stick one ID to your chest<br>
 4 save one for the group
 
 <b>Appropriation</b> <br>
