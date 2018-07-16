@@ -1,4 +1,4 @@
-# Appropriate Tech: who can speak for whom and how
+# [Appropriate Tech: who can speak for whom and how](https://docs.google.com/presentation/d/1OfS63exs0K24FtRTNYA1_3SBmv3oq4e8sN_PCL0ZnaY/edit?usp=sharing)
 
 In this workshop students will use their online personas to create art about themselves and their classmates. First we'll discuss appropriation versus privacy and artistic freedom versus social justice — looking at a recent art world controversy. Then we'll learn about zine culture and how it embraces and critques appropriation. Students will create a self-portrait using a thread from their emails, texts, apps, or feeds. Finally, students will portray each other using the same material as a way to see one another differently. Trusting each other with their content.    
 
