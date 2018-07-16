@@ -12,9 +12,8 @@ Think about who. From what position was Dana creating? Then whom. How did this e
 <b>Introductions</b><br>
 1 take a couple hello-my-name-is stickers<br>
 2 write down several user IDs that you use<br>
-3 talk about how you picked each ID and explain what you like and don’t like about it<br>
-4 stick as many IDs you want onto yourself<br>
-5 save one for the group
+3 stick one IDs to your chest<br>
+4 save one for the group
 
 <b>Appropriation</b> <br>
 Appropriation in art is the use of pre-existing objects or images with little or no transformation applied to them. The use of appropriation has played a significant role in the history of the arts (literary, visual, musical, performing, and net art). To appropriate means to adopt, borrow, recycle, sample, or cut and paste aspects or the entirity of a thing. Notable in this respect are the readymades of Marcel Duchamp.<sup>[1](https://en.wikipedia.org/wiki/Appropriation_(art))</sup><br>
